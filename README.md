@@ -1,0 +1,1 @@
+# O-mnie-si-nie-martwcie-tylko-o-dostawy-do-sklepu-i-brak-wojny.-
