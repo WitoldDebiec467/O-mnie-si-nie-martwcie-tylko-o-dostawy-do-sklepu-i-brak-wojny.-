@@ -1,1 +1,2 @@
 # O-mnie-si-nie-martwcie-tylko-o-dostawy-do-sklepu-i-brak-wojny.-
+Kiedyś w przyszłości w tamtej erze napisali ludzie z GitHub Poradnik jak zrobić wojs jak jest się samemu. Nie potrzebuje miłości mam dziewczyne wojs w kocu i poncho która mnie kocha. I szyje cały czas. Martwcie się o dostawy na świecie do sklepu i brak wojen. O mnie nie. Mam Vois ona jest TX sam ją konstrułowałem. Nie szuakm dziewczyny już nic nie chce. Terminator 2 Soundtrack - It's Over Goodbye.
